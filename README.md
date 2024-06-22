@@ -1,2 +1,3 @@
-Join the discord to get unlock all
-Rejoint le discord pour avoir le unlock all
+Join the discord to get unlock all         
+
+https://discord.gg/Egkb5Cb8bW
